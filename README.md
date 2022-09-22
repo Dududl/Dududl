@@ -1,10 +1,86 @@
-- 👋 Hi, I’m @Dududl
-- 👀 I’m interested in womans
-- 🌱 I’m currently learning  whow to play chess
-- 💞️ I’m looking to collaborate on sex with womans
-- 📫 How to reach me ask for BATMAN
+# Sobre mim: Sou Lindão
+----------------------
+* Jogo jogos 
+* Asisito series de advogados para garantir a justiça no mundo
+* Adoro viajr
+* Amo minha família
+* Torço para o São Paulo FC
+* Gosto de chimarrão
+* Durmo mais do que urso ibernando
 
-<!---
-Dududl/Dududl is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+* "Digdin digdin digdin
+Digdin digdin digdin
+Digdin digdin digdin
+Sou foda
+Din din din
+Digdin digdin digdin
+Digdin digdin digdin
+Digdin digdin
+Sou foda
+Sou foda
+Na cama te esculacho
+Na sala ou no quarto
+No beco ou no carro
+E-e-eu, eu sou sinistro
+Melhor que seu marido
+Esculacho o seu amigo
+No escuro eu sou um perigo
+Avassalador
+Um cara interessante
+Esculacho seu amante
+Até o teu ficante
+Mas, mas não se esqueça
+Que eu sou vagabundo
+Depois que a putaria
+Começou a rolar no mundo
+Pra, pra te enlouquecer
+Pra, pra te enlouquecer
+Todas, todas que provaram
+Não conseguem esquecer
+Pra, pra te enlouquecer
+Pra te enlouquecer
+Todas, todas que provaram
+Não conseguem esquecer
+Sou foda
+Digdin digdin digdin din din
+Digdin digdin digdin
+Digdin digdin digdin din din
+Eu sou sinistro
+Digdin digdin digdin din din
+Digdin digdin digdin
+Digdin digdin digdin din din
+Digdin digdin digdin
+Sou foda
+Na cama te esculacho
+Na sala ou no quarto
+No beco ou no carro
+E-e-eu, eu sou sinistro
+Melhor que seu marido
+Esculacho o seu amigo
+No escuro eu sou um perigo
+Avassalador
+Um cara interessante
+Esculacho o teu amante
+Até o teu ficante
+Mas, mas não se esqueça
+Que eu sou vagabundo
+Depois que a putaria
+Começou a rolar no mundo
+Pra, pra te enlouquecer
+Pra, pra te enlouquecer
+Todas, todas que provaram
+Não conseguem esquecer
+Pra, pra te enlouquecer
+Pra te enlouquecer
+Todas, todas que provaram
+Não conseguem esquecer
+Sou foda
+Digdin digdin digdin din din
+Digdin digdin digdin
+Digdin digdin digdin din din
+Eu sou sinistro
+Digdin digdin digdin din din
+Digdin digdin digdin
+Digdin digdin digdin din din
+Digdin digdin digdin
+Sou foda"
